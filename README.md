@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **mf9049@gmail.com**
 
-- 📄 Know about my experiences [https://mdfakih.github.io/resume/resume_28_12.pdf](https://mdfakih.github.io/resume/resume_28_12.pdf)
+- 📄 Know about my experiences [https://mdfakih.github.io/resume/resume_28_12.pdf](https://mdfakih.github.io/resume/resume_01_02.pdf)
 
 - ⚡ Fun fact **I love Binge watching TV series.**
 
